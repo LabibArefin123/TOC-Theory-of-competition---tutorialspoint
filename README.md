@@ -1,0 +1,1 @@
+# TOC-Theory-of-competition---tutorialspoint
